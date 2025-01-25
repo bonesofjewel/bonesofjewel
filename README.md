@@ -9,4 +9,4 @@
 ###### they all have most of the same info, but the 1st one is most up to date !!
 ###### . . . leave a gimmick or 2 ? :^)
 ***
-daily [click](https://arab.org/click-to-help/)
+[ ♡ ] daily [click](https://arab.org/click-to-help/)
