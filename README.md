@@ -24,6 +24,6 @@
 
 ##### [ 3 ] [rentry](https://rentry.co/bonesofjewel)
 ###### ✧ its basically the same info
-###### . . . send gimmicks ^_^ !!
+###### . . . send gimmicks ^_^ ! !
 ***
 [ ♡ ] daily [click](https://arab.org/click-to-help/)
