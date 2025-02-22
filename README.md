@@ -11,7 +11,7 @@
 ☆ iffy befriending anyone -16
 
 ☆ my dni ig . . idk ill just block you idgaaff
-###### ✧ if you make diddy "jokes" , "im gonna touch you" "jokes" , or youre just being nsfw [ on safe server ] in general , , etc. , etc.
+###### ✧ ( dni ) ↑ ↑ if you make diddy "jokes" , "im gonna touch you" "jokes" , or youre just being nsfw [ on safe server ] in general , , etc. , etc.
 ***
 ### ! ! !
 ☆ i love hnk . . fans pls int . . where are you guys 💔💔
