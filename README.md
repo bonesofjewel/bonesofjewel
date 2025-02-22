@@ -2,7 +2,7 @@
 ### info !
 ☆ i play on 18+ and safe server
 
-###### ✧ open to c+h [ please ask if im already w/ someone ]
+###### ✧ always open to c+h [ if im already w/ someone, please ask first ! ! ]
 
 ###### ✧ im only on safe to hangout with friends or to play fts . . or both
 
