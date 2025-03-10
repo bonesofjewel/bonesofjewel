@@ -6,8 +6,6 @@
 
 ###### ✧ im only on safe to hangout with friends or to play fts . . or both
 
-###### ✧ i yearn for fts . . .
-
 ☆ iffy befriending anyone -16
 
 ☆ my dni ig . . ill just block you idgaaff
