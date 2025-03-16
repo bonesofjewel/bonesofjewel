@@ -1,15 +1,11 @@
 ***
 ### info !
-☆ i play on 18+ and safe server
+☆ always open to c+h
 
-###### ✧ always open to c+h [ if im already w/ someone, please ask first ! ]
+☆ no interest befriending -16
 
-###### ✧ im only on safe to hangout with friends or to play fts . . or both
-
-☆ iffy befriending anyone -16
-
-☆ my dni ig . . ill just block you idgaaff
-###### ✧ ( dni ) ↑ ↑ if you make diddy jokes , "im gonna touch you" jokes , or youre just being nsfw [ on safe server ] in general , , etc. , etc.
+☆ no specific dni, use common sense ( i block freely )
+###### ✧ if you didnt do anything strange, i probably just temp hid you
 ***
 ### ! ! !
 ☆ i love hnk . . fans pls int . . where are you guys 💔💔
@@ -21,7 +17,7 @@
 ##### [ 2 ] [strawpage 2](https://syntheticpearl.straw.page)
 
 ##### [ 3 ] [rentry](https://rentry.co/bonesofjewel)
-###### ✧ its basically the same info
+###### ✧ first one is most up-to-date !
 ###### . . . send gimmicks ^_^ ! !
 ***
 [ ♡ ] daily [click](https://arab.org/click-to-help/)
