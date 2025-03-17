@@ -12,12 +12,13 @@
 ###### ✧ alnst & crk too i guess . . !
 ***
 ### links !
+
 #### [ 1 ] [strawpage](https://bonesofjewel.straw.page)
 
-##### [ 2 ] [strawpage 2](https://syntheticpearl.straw.page)
+#### [ 2 ] [strawpage 2](https://syntheticpearl.straw.page)
 
-##### [ 3 ] [rentry](https://rentry.co/bonesofjewel)
-###### ✧ first one is most up-to-date !
-###### . . . send gimmicks ^_^ ! !
+#### [ 3 ] [atabook](https://bonesofjewel.atabook.org)
+###### ✧ 1st straw is most up-to-date !
+###### . . . send me something ^_^ ! !
 ***
 [ ♡ ] daily [click](https://arab.org/click-to-help/)
