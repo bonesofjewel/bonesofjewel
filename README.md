@@ -1,3 +1,4 @@
+### [ ♡ ] daily [click](https://arab.org/click-to-help/)
 ***
 ### info !
 ☆ always open to c+h
@@ -21,4 +22,4 @@
 ###### ✧ 1st straw is most up-to-date !
 ###### . . . send me something ^_^ ! !
 ***
-[ ♡ ] daily [click](https://arab.org/click-to-help/)
+![es broma, dont come for me](https://files.catbox.moe/g360ab.png)
