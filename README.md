@@ -6,8 +6,12 @@
 ### links !
 
 #### ✧ [ strawpage ,](https://bonesofjewel.straw.page) [ strawpage 2 ](https://syntheticpearl.straw.page)
-#### ✧ [ ata ](https://bonesofjewel.atabook.org)
+#### ✧ [ atabook ](https://bonesofjewel.atabook.org)
 ###### ✧ 1st straw is most up-to-date !
 ###### . . . send me something ^_^ ! !
+***
+info regarding my tier 4 if you gaf
+###### ✧ [ i will help ]
+###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
 ***
 ![yaoi](https://files.catbox.moe/8s02nz.png)
