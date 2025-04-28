@@ -1,4 +1,5 @@
 ### [ ♡ ] daily [click](https://arab.org/click-to-help/)
+### [ ♡ ] [rentry.co/savehumanity](https://rentry.co/savehumanity)
 ***
 ☆ i love hnk . . fans pls int . . where are you guys 💔💔
 ###### ✧ alnst & crk too i guess . . !
