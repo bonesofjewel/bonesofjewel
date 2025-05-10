@@ -3,7 +3,7 @@
 ### [ ♡ ] [rentry.co/charitylinks](https://rentry.co/charitylinks)
 ***
 ☆ i love hnk . . fans pls int . . where are you guys 💔💔
-###### ✧ alnst & crk too i guess . . !
+###### ✧ crk & idv too i guess . . !
 ***
 ### links !
 
