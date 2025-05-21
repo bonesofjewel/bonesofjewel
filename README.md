@@ -13,7 +13,7 @@
 ###### . . . send me something ^_^ ! !
 ***
 info regarding my tier 4 if you gaf
-###### ✧ [ i will help ]
 ###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
+###### ✧ i will only deny if you ask for safe spanish or if you send PARAGRAPHS
 ***
 ![yaoi](https://files.catbox.moe/8s02nz.png)
