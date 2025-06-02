@@ -8,7 +8,7 @@
 ### links !
 
 #### ✧ [ strawpage ,](https://bonesofjewel.straw.page) [ strawpage 2 ](https://syntheticpearl.straw.page)
-#### ✧ [ atabook ](https://bonesofjewel.atabook.org)
+#### ✧ [ atabook ,](https://bonesofjewel.atabook.org) [ pronouns page ](https://en.pronouns.page/@bonesofjewel)
 ###### ✧ 1st straw is most up-to-date !
 ###### . . . send me something ^_^ ! !
 ***
