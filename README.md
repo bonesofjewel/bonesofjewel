@@ -2,8 +2,8 @@
 ### [ ♡ ] [rentry.co/savehumanity](https://rentry.co/savehumanity)
 ### [ ♡ ] [rentry.co/charitylinks](https://rentry.co/charitylinks)
 ***
-☆ i love hnk . . fans pls int . . where are you guys 💔💔
-###### ✧ crk & idv too i guess . . !
+☆ i love hnk and guardian tales . . fans pls int . . where are you guys 💔💔
+###### ✧ crk & idv tales too ig . . !
 ***
 ### links !
 
@@ -12,7 +12,8 @@
 ###### ✧ 1st straw is most up-to-date !
 ###### . . . send me something ^_^ ! !
 ***
-info regarding my tier 4 if you gaf
+☆ currently saving up money so #unsubscribed 
+###### ✧ info regarding my tier 4 if you gaf
 ###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
 ###### ✧ i will only deny if you ask for safe spanish or if you send PARAGRAPHS
 ***
