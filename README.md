@@ -2,8 +2,8 @@
 ### [ ♡ ] [rentry.co/savehumanity](https://rentry.co/savehumanity)
 ### [ ♡ ] [rentry.co/charitylinks](https://rentry.co/charitylinks)
 ***
-☆ i love hnk and guardian tales . . fans pls int . . where are you guys 💔💔
-###### ✧ crk & idv tales too ig . . !
+☆ i love hnk, idv, and jhariah . . fans pls int . . where are you guys 💔💔
+###### ✧ crob & guardian tales too ig . . !
 ***
 ### links !
 
