@@ -10,7 +10,7 @@
 #### ✧ [ strawpage ,](https://2mendthesun.straw.page) [ strawpage 2 ,](https://bonesofjewel.straw.page) [ strawpage 3 — probably mobile friendly](https://syntheticpearl.straw.page)
 #### ✧ [ atabook ,](https://bonesofjewel.atabook.org) [ pronouns page ](https://en.pronouns.page/@bonesofjewel)
 ###### ✧ 1st straw is most up-to-date !
-###### ✧ also me . . . [FlNALSKETCH ,](https://github.com/FlNALSKETCH) [ILLUSIONCARIVAL ,](https://github.com/ILLUSIONCARNIVAL) [ SyntheticPearl ,](https://github.com/SyntheticPearl) [ TRUSTCEREMONY ,](https://github.com/trustceremony)
+###### ✧ also me . . . [FlNALSKETCH ,](https://github.com/FlNALSKETCH) [ILLUSIONCARIVAL ,](https://github.com/ILLUSIONCARNIVAL) [ SyntheticPearl ,](https://github.com/SyntheticPearl) [ TRUSTCEREMONY](https://github.com/trustceremony)
 ###### . . . i like making info pages
 ***
 ☆ currently saving up money so #unsubscribed 
