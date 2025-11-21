@@ -7,14 +7,15 @@
 ***
 ### links !
 
-#### ✧ [ strawpage ,](https://bonesofjewel.straw.page) [ strawpage 2 ](https://syntheticpearl.straw.page)
+#### ✧ [ strawpage ,](https://2mendthesun.straw.page) [ strawpage 2 ,](https://bonesofjewel.straw.page) [ strawpage 3 — probably mobile friendly](https://syntheticpearl.straw.page)
 #### ✧ [ atabook ,](https://bonesofjewel.atabook.org) [ pronouns page ](https://en.pronouns.page/@bonesofjewel)
 ###### ✧ 1st straw is most up-to-date !
-###### . . . send me something ^_^ ! !
+###### ✧ also me . . . [FlNALSKETCH ,](https://github.com/FlNALSKETCH) [ILLUSIONCARIVAL ,](https://github.com/ILLUSIONCARNIVAL) [ SyntheticPearl ,](https://github.com/SyntheticPearl) [ TRUSTCEREMONY ,](https://github.com/trustceremony)
+###### . . . i like making info pages
 ***
 ☆ currently saving up money so #unsubscribed 
-###### ✧ info regarding my tier 4 if you gaf
-###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
-###### ✧ i will only deny if you ask for safe spanish or if you send PARAGRAPHS
+###### ~~✧ info regarding my tier 4 if you gaf~~
+###### ~~✧ [ t4 info / available servers](https://rentry.co/etherealdecay)~~
+###### ~~✧ i will only deny if you ask for safe spanish or if you send PARAGRAPHS~~
 ***
 ![yaoi](https://files.catbox.moe/8s02nz.png)
