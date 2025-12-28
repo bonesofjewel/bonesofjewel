@@ -10,10 +10,10 @@
 #### ✧ [ names / pronouns ](https://en.pronouns.page/@bonesofjewel)
 #### ✧ info — view desktop — [ strawpage ,](https://2mendthesun.straw.page) [ strawpage 2 ,](https://bonesofjewel.straw.page) [ strawpage 3 ](https://syntheticpearl.straw.page)
 #### ✧ info — easy to read / mobile — [rentry](https://rentry.co/winterduties)
-#### ✧ sign — [ atabook ,](https://bonesofjewel.atabook.org) [ colour my tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH)
+#### ✧ sign — [ atabook ](https://bonesofjewel.atabook.org)
 ###### ✧ 1st straw is most up-to-date !
 ###### ✧ also me . . . [FlNALSKETCH ,](https://github.com/FlNALSKETCH) [ILLUSIONCARIVAL ,](https://github.com/ILLUSIONCARNIVAL) [ SyntheticPearl ,](https://github.com/SyntheticPearl) [ TRUSTCEREMONY](https://github.com/trustceremony)
-###### . . . i like making info pages
+###### . . . thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
 ***
 ### ☆ supp info !
 ###### ✧ info regarding my tier 4 if you gaf
