@@ -18,6 +18,6 @@
 ### ☆ supp info !
 ###### ✧ info regarding my tier 4 if you gaf
 ###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
-###### ✧ i will only deny if you ask for safe spanish or if you send PARAGRAPHS
+###### ✧ i will only deny if you send PARAGRAPHS
 ***
 ![yaoi](https://files.catbox.moe/8s02nz.png)
