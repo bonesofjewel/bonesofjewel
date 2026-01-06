@@ -15,9 +15,9 @@
 ###### ✧ also me . . . [FlNALSKETCH ,](https://github.com/FlNALSKETCH) [ILLUSIONCARIVAL ,](https://github.com/ILLUSIONCARNIVAL) [ SyntheticPearl ,](https://github.com/SyntheticPearl) [ TRUSTCEREMONY](https://github.com/trustceremony)
 ###### . . . thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
 ***
-### ☆ supp info !
-###### ✧ info regarding my tier 4 if you gaf
-###### ✧ [ t4 info / available servers](https://rentry.co/etherealdecay)
-###### ✧ i will only deny if you send PARAGRAPHS
+### ☆ ~~supp info !~~ saving up money
+###### ✧ ~~info regarding my tier 4 if you gaf~~
+###### ✧ ~~[ t4 info / available servers](https://rentry.co/etherealdecay)~~
+###### ✧ ~~i will only deny if you send PARAGRAPHS~~
 ***
 ![yaoi](https://files.catbox.moe/8s02nz.png)
