@@ -2,7 +2,7 @@
 ### [ ♡ ] [docs.google.savehumanity](https://docs.google.com/document/d/e/2PACX-1vR_yASRdYC932Bgv6vv-pgAZZpjJVW6Dl9eZ2_JgPVGM-w6A_cwS3kSAxiEq-Wv-TuwWmyC5mrN4wVR/pub)
 ### [ ♡ ] [rentry.co/charitylinks](https://rentry.co/charitylinks)
 ***
-☆ i love gachiakuta, hnk, and jhariah . . fans pls int . . where are you guys 💔💔
+☆ i love gachiakuta, hnk, jhariah, and pmmm . . fans pls int . . where are you guys 💔💔
 ###### ✧ crk too ig . . !
 ***
 ### ☆ links !
