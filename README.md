@@ -1,6 +1,7 @@
 ### [ ♡ ] daily [click](https://arab.org/click-to-help/)
 ### [ ♡ ] [docs.google.savehumanity](https://docs.google.com/document/d/e/2PACX-1vR_yASRdYC932Bgv6vv-pgAZZpjJVW6Dl9eZ2_JgPVGM-w6A_cwS3kSAxiEq-Wv-TuwWmyC5mrN4wVR/pub)
 ### [ ♡ ] [rentry.co/charitylinks](https://rentry.co/charitylinks)
+### [ ♡ ] [Fox's GoFundMe](https://www.gofundme.com/f/help-fuel-foxs-fight-towards-safe-living?attribution_id=sl:410bff2f-a7ad-476e-8716-fd7d42f8319c&lang=en_US&ts=1781829826&utm_campaign=fp_sharesheet&utm_content=amp20_control&utm_medium=customer&utm_source=copy_link)
 ***
 ☆ i love gachiakuta, hnk, jhariah, and pmmm . . fans pls int . . where are you guys 💔💔
 ###### ✧ crk too ig . . !
