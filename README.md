@@ -8,7 +8,7 @@
 ***
 ### ☆ links !
 
-#### ✧ [ pronouns ](https://pronouns.cc/@bonesofjewel/Phosphophyllite)
+#### ✧ [ pronouns ](https://pronouns.cc/@bonesofjewel)
 #### ✧ info — view desktop — [ strawpage ,](https://2mendthesun.straw.page) [ strawpage 2 ,](https://bonesofjewel.straw.page) [ strawpage 3 ](https://syntheticpearl.straw.page)
 #### ✧ info — easy to read / mobile — [rentry](https://rentry.co/winterduties)
 #### ✧ sign — [ atabook ](https://bonesofjewel.atabook.org)
