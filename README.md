@@ -11,7 +11,7 @@
 ### ☆⠀⠀other links⠀!
 #### ✧⠀⠀[atabook](https://bonesofjewel.atabook.org)
 #### ✧⠀⠀[sp2⠀,](https://bonesofjewel.straw.page)⠀[sp3](https://syntheticpearl.straw.page)
-###### ✧⠀⠀also me⠀.⠀.⠀.⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
+###### ✧⠀⠀also me⠀.⠀.⠀. [DlVINEMADNESS ,](https://github.com/DlVINEMADNESS)⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
 ###### .⠀.⠀.⠀thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
 ***
 ![stupid ass cat](https://files.catbox.moe/8u62az.jpg)
