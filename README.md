@@ -9,9 +9,16 @@
 #### ✧⠀⠀Yes⠀, I will help you with object limit⠀—⠀[T4 supp info](https://rentry.co/etherealdecay)
 ***
 ### ☆⠀⠀other links⠀!
+###### .⠀.⠀.⠀hi i finally responded to EVERYTHING⠀.⠀.⠀.⠀
 #### ✧⠀⠀[atabook](https://bonesofjewel.atabook.org)
 #### ✧⠀⠀[sp2⠀,](https://bonesofjewel.straw.page)⠀[sp3](https://syntheticpearl.straw.page)
-###### ✧⠀⠀also me⠀.⠀.⠀. [DlVINEMADNESS ,](https://github.com/DlVINEMADNESS)⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
+###### ✧⠀⠀also me⠀.⠀.⠀. [PARATIISE ,](https://github.com/PARATIISE)⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
 ###### .⠀.⠀.⠀thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
 ***
+<p align="left">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=natzaowo&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&profanity=true&hide_remaster=false&bar_color=53b14f&bar_color_cover=true">
+  </a>
+</p>
+
 ![stupid ass cat](https://files.catbox.moe/8u62az.jpg)
