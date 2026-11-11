@@ -11,7 +11,7 @@
 ***
 ### ☆⠀⠀other⠀!
 ###### .⠀.⠀.⠀scientists reveal the Hi
-#### ✧⠀⠀[atabook ,](https://bonesofjewel.atabook.org)⠀[sp2,](https://bonesofjewel.straw.page)⠀[sp3](https://syntheticpearl.straw.page)
+#### ✧⠀⠀[atabook ,](https://bonesofjewel.atabook.org)⠀[sp2,](https://syntheticpearl.straw.page)⠀[sp3](https://languageofthelost.straw.page/illusia)
 ###### ✧⠀⠀also me⠀.⠀.⠀. [PARATIISE ,](https://github.com/PARATIISE)⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
 ###### .⠀.⠀.⠀thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
 ***
