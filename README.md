@@ -5,12 +5,11 @@
 ### [ ♡ ]⠀⠀[Fox's GoFundMe](https://www.gofundme.com/f/help-fuel-foxs-fight-towards-safe-living?attribution_id=sl:410bff2f-a7ad-476e-8716-fd7d42f8319c&lang=en_US&ts=1781829826&utm_campaign=fp_sharesheet&utm_content=amp20_control&utm_medium=customer&utm_source=copy_link)
 ***
 ### ☆⠀⠀about me⠀!
-###### .⠀.⠀.⠀boundaries included. please rbyi.
+###### .⠀.⠀.⠀scientists reveal the Hi
 #### ✧⠀⠀[info-desktop](https://2mendthesun.straw.page)⠀⠀[info-mobile / e2r](https://rentry.co/winterduties)⠀⠀[pronouns](https://pronouns.cc/@bonesofjewel)
 #### ~~✧⠀⠀Yes⠀, I will help you with object limit⠀—⠀[T4 supp info](https://rentry.co/etherealdecay)~~
 ***
 ### ☆⠀⠀other⠀!
-###### .⠀.⠀.⠀scientists reveal the Hi
 #### ✧⠀⠀[atabook ,](https://bonesofjewel.atabook.org)⠀[sp2,](https://syntheticpearl.straw.page)⠀[sp3](https://languageofthelost.straw.page/illusia)
 ###### ✧⠀⠀also me⠀.⠀.⠀. [PARATIISE ,](https://github.com/PARATIISE)⠀[FlNALSKETCH⠀,](https://github.com/FlNALSKETCH)⠀[ILLUSIONCARIVAL⠀,](https://github.com/ILLUSIONCARNIVAL)⠀[SyntheticPearl⠀,](https://github.com/SyntheticPearl)⠀[TRUSTCEREMONY](https://github.com/trustceremony)
 ###### .⠀.⠀.⠀thank you for the [ tree ](https://colormytree.me/2025/01JE32Z1C150VZKFEDHDKSSMAH) messages, they are much appreciated ! ♥️♥️
